@@ -1,4 +1,4 @@
-# Welcome Tantra Gyana
+# Welcome to Tantra Gyana
 
 ❗❗ A platform for IT enthusiast ❗❗
 
