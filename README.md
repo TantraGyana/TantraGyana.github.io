@@ -14,7 +14,7 @@
 
 ❗❗❗❗❗❗❗❗❗❗❗❗❗❗❗❗❗❗❗❗❗❗❗❗❗❗❗❗❗❗❗❗    **COMING SOON**    ❗❗❗❗❗❗❗❗❗❗❗❗❗❗❗❗❗❗❗❗❗❗❗❗❗❗❗❗❗❗❗❗❗❗❗❗
 
-If you want to be part of Tantra Gyana and meet with like minded people. Contact at: tantracode88@gmail.com
+If you want to be part of Tantra Gyana and meet with like minded people. Contact at: [tantragyana88@gmail.com]
 
 ✔ If you are from CS background and wants to contribute on this platform start contributing on your interested repository.
 
