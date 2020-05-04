@@ -18,4 +18,4 @@ If you want to be part of Tantra Gyana and meet with like minded people. Contact
 
 ✔ If you are from CS background and wants to contribute on this platform start contributing on your interested repository.
 
-For more updates:- Bookmark TantraGyana
+For more updates:- [https://TantraGyana.github.io]
